@@ -1,3 +1,9 @@
+
+![b4a0d-fondos2banimados2_zpsdbpvulbd](https://user-images.githubusercontent.com/91491398/134989600-022bd849-55de-41ad-af52-9cd130451de6.gif)
+![8d4bfe_92a2886a9260408e8f22151008c8c788_mv2](https://user-images.githubusercontent.com/91491398/134989661-d8714d07-b7a5-40a8-b949-ef343d10a5b9.gif)
+
+
+
 <h1 align="center">Hi world 👋, I'm laura lopez</h1>
 <h3 align="center">im 17 years old and i am an aspiring systems engineer</h3>
 
